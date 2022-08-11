@@ -1,6 +1,6 @@
-# MChanyah Holmes
+# Chanyah Holmes
 
-This is my first website portfolio  
+Model of the Century 
 
 ## About Me 
 
